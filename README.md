@@ -35,10 +35,12 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The adultresses funerall day in flaming, scorching, and          consuming fire, or, The burning dow
+
 #####Body#####
+
+1. MVRDER VPON MVRDER: OR, THE OLD WAY OF POYSONING NEWLY REVIVED.
 The free and voluntary Confession of Alice Clarke, the 18. day of May, 1635. concerning the Death of
-1. A SHORT TRACT VPON THE hainousnesse of Poysoning.
+    _ A SHORT TRACT VPON THE hainousnesse of Poysoning.
 The second Confession of Alice Clarke this 10. day of May, 1635. at the place of Execution, concerni
 **Types of content**
 
